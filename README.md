@@ -1,6 +1,6 @@
 # monsurhillas007
 
-### Hi there 👋, Hello Human. monsurhillas007 here
+###  Hello Hooman.👋,  monsurhillas007 here
 #### Currently hibernating
 ![Currently hibernating](https://media.giphy.com/media/QVmwvXrFlCbzsd2F9O/giphy.gif)
 
